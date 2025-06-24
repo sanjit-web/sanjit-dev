@@ -46,8 +46,8 @@
 
 ### 📫 Contact Me
 
-- 📧 Email: sriyans@example.com  
-- 📱 WhatsApp: +91 7894003714  
+- 📧 Email: sriyanssanjit@gmail.com.com  
+- 📱 WhatsApp: +91 9439291449  
 - 🖥️ Website (optional): _coming soon_
 
 ---
